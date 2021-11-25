@@ -908,7 +908,13 @@ La Esperanza.
 
 -------
 
-> A nerd can call another nerd a nerd.
+> Eh..What´s up,Doc?.
+
+*Friedrich Nietzche*
+
+-------
+
+> nerd can call another nerd a nerd.
 
 *Travis Scott*
 
